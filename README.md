@@ -1,5 +1,5 @@
 # ABDULAMIR REZASOROUSH
-Construction Project Manager
+<b>Construction Project Manager</b>
 
 <i>Please follow me:</i>
 <p><strong><a href="https://sites.google.com/view/amirsoroush">https://sites.google.com/view/amirsoroush</a></strong></p>
